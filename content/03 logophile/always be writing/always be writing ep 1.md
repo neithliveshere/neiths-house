@@ -1,0 +1,366 @@
+
+Always Be Writing - Episode 1 - The Syllabus
+
+*I recognize I am weeks late, sorry for the hiatus! More info (if you care to know) at the end of this post.
+
+---
+
+hello interweb,
+
+Welcome back to always be writing. Today we’re getting into the syllabus. This is structured around Ray Bradbury’s 1000 night challenge with some influence from Kurt Vonnegut’s fiction writing/reading assignment.
+
+**For 365 days I will:**  
+• read one essay  
+• read one short story  
+• read one poem
+
+**Every week I will:**  
+• assign the readings a grade from A ro F  
+• take two of each (essay, short story, poem) and write a report on each  
+• write a thematic/argumentative/creative non-fiction essay informed/inspired by the readings
+
+All readings for term one will be entered into a spreadsheet and by genre and author/topic. I will randomly generate a number everyday and read the works assigned to that number. A screenshot of the said spreadsheet will be below the reading list. I hope to share summaries, my grades for the readings, and any intense thoughts or feelings every other day. The two weekly reports and one weekly essay will be shared on Patreon. You will find a weekly roundup and the general gist of my thoughts on my readings in the newsletter on Saturday. The first report card will be released on Wednesday alongside the midweek report. The first essay will be posted on Sunday night (the abstract will be located in Saturday’s newsletter). Please feel free to send an email (or drop a comment on the social media account of your choosing) if you’re reading along, reading something vaguely related, or just to engage in/with what I’m sharing. Below is my reading list from now to Jan 4th.
+
+---
+
+**Required Reading for Term 1:**  
+(more official looking syllabus [here](https://www.patreon.com/posts/always-be-100-in-142783983?utm_medium=clipboard_copy&utm_source=copyLink&utm_campaign=postshare_creator&utm_content=join_link))
+
+- Maya Angelou
+    - Books/Essays/Chapters
+        - I Know Why the Caged Bird Sings
+        - Just Give Me a Cool Drink of Water 'Fore I Diiie
+        - Gather Together in My Name
+        - And Still I Rise
+        - The Heart of a Woman
+        - On the Pulse of Morning
+        - Wouldn't Take Nothing for My Journey Now
+        - Phenomenal Woman
+        - Letter to My Daughter
+        - Mom & Me & Mom
+        - Singin' and Swingin' and Gettin' Merry Like Christmas
+        - All God's Children Need Traveling Shoes
+        - I Shall Not Be Moved
+        - Even the Stars Look Lonesome
+        - The Collected Autobiographies of Maya Angelou
+    - Performances & Media
+        - Conversation with a Native Son: Maya Angelou and James Baldwin
+        - Dr. Maya Angelou at Evergreen State College, “Rainbow in the Clouds”
+        - Maya Angelou’s Inaugural Poem (1993)
+        - Maya Angelou – Live and Unplugged (1987)
+        - Maya Angelou at United Nations, “A Brave and Startling Truth”
+        - Interview with Maya Angelou at Washington University Film and Media Archive for “The Great Depression”
+    - Poems
+        - A Conceit
+        - Alone
+        - Human Family
+        - I Know Why the Caged Bird Sings
+        - Insomniac
+        - Men
+        - Million Man March Poem
+        - Momma Welfare Roll
+        - On The Pulse Of Morning
+        - Passing Time
+        - Phenomenal Woman
+        - Refusal
+        - Remembrance
+        - Savior
+        - Still I Rise
+        - The Lesson
+        - Touched by an Angel
+        - Weekend Glory
+        - When You Come
+        - Woman Work
+        - Rainbow in the Cloud
+        - Amazing Peace
+        - Just Give Me a Cool Drink of Water 'fore I Diiie
+        - Oh Pray My Wings Are Gonna Fit Me Well
+        - His Day Is Done
+        - Celebrations
+        - A Song Flung Up to Heaven
+        - Shaker, Why Don't You Sing?
+        - Amazing Peace
+    - Scholarly Works
+        - Racial Protest, Identity, Words, and Form in Maya Angelou's I Know Why the Caged Bird Sings by Pierre A. Walker
+        - The Poetry of Maya Angelou: Liberation Ideology and Technique by Yasmin Y. DeGout
+- William Shakespeare
+    - Poems/Sonnets
+        - A Lover's Complaint
+        - All the World's a Stage
+        - Carpe Diem
+        - Venus and Adonis
+        - From Venus and Adonis
+        - From you have I been absent in the spring… (Sonnet 98)
+        - Orpheus with his Lute Made Trees
+        - Sigh No More
+        - Sonnet 106: When in the Chronicle of Wasted Time
+        - Sonnet 8
+        - Sonnet CVII: Not Mine Own Fears, Nor the Prophetic Soul
+        - Sonnet CXI: O, for my sake do you with Fortune chide
+        - Sonnet CXLV
+        - Sonnet CXVI: Let me not to the marriage of true minds
+        - Sonnet CXXX: My mistress' eyes are nothing like the sun
+        - Sonnet I: From Fairest Creatures We Desire Increase
+        - Sonnet II: When Forty Winters Shall Besiege Thy Brow
+        - Sonnet III: Look In Thy Glass, and Tell the Face Thou Viewest
+        - Sonnet IV: Unthrifty Loveliness, Why Dost Thou Spend
+        - Sonnet LXIV: When I Have Seen by Time's Fell Hand Defac'd
+        - Sonnet V: Those Hours, That With Gentle Work Did Frame
+        - Sonnet XCIV: They That Have Power to Hurt and Will Do None
+        - Sonnet XV: When I consider everything that grows
+        - Sonnet XXIX: When, in disgrace with fortune and men's eyes
+        - Sonnet XXX: When to the sessions of sweet silent thought
+        - Sonnet XXXII: If thou survive my well-contented day
+        - Sonnet XXXVIII: How Can My Muse Want Subject to Invent
+        - Sonnets CVII: Not mine own fears, nor the prophetic soul
+        - Sonnets CX: Alas, 'tis true I have gone here and there
+        - Sonnets CXLVI: Poor soul, the centre of my sinful earth
+        - Sonnets CXVI: Let me not to the marriage of true minds
+        - Sonnets CXXIX: Th' expense of spirit in a waste of shame
+        - Sonnets LIII: What is your substance, whereof are you made
+        - Sonnets LX: Like as the waves make towards the pebbl'd shor
+        - Sonnets LXIV: When I have seen by Time's fell hand defac'd
+        - Sonnets LXVI: Tir'd with all these, for restful death I cry
+        - Sonnets LXXIII: That time of year thou mayst in me behold
+        - Sonnets XCIV: They that have power to hurt and will do none
+        - Sonnets XIX: Devouring Time, blunt thou the lion's paws
+        - Sonnets XV: When I consider everything that grows
+        - Sonnets XVIII: Shall I compare thee to a summer's day?
+        - Sonnets XXIX: When, in disgrace with fortune and men's eyes
+        - Sonnets XXV: Let those who are in favour with their stars
+        - Sonnets XXX: When to the sessions of sweet silent thought
+        - Sonnets XXXIII: Full many a glorious morning have I seen
+        - The Phoenix and the Turtle
+        - The Quality of Mercy
+        - The Rape Of Lucrece
+    - Plays
+        - Comedies
+            - All's Well That Ends Well
+            - As You Like It
+            - Comedy of Errors
+            - Love's Labour's Lost
+            - Measure for Measure
+            - Merchant of Venice
+            - Merry Wives of Windsor
+            - Midsummer Night's Dream
+            - Much Ado about Nothing
+            - Tempest
+            - Twelfth Night
+            - Two Gentlemen of Verona
+        - Histories
+            - Henry IV, Part I
+            - Henry IV, Part II
+            - Henry V
+            - Henry VI, Part I
+            - Henry VI, Part II
+            - Henry VI, Part III
+            - Henry VIII
+            - King John
+            - Pericles
+            - Richard II
+            - Richard III
+        - Tragedies
+            - Antony and Cleopatra
+            - Coriolanus
+            - Cymbeline
+            - Hamlet
+            - Julius Caesar
+            - King Lear
+            - Macbeth
+            - Othello
+            - Romeo and Juliet
+            - Timon of Athens
+            - Titus Andronicus
+            - Troilus and Cressida
+    - Scholarly Works
+        - Shakespeare's Vocabulary: Myth and Reality by Hugh Craig
+        - Fathering Herself: A Source Study of Shakespeare's Feminism by Claire McEachern
+        - Shakespeare's Non-Shakespearean Sonnets by Philip C. McGuire
+        - "Obscured by dreams": Race, Empire, and Shakespeare's A Midsummer Night's Dream by Margo Hendricks
+        - Teaching Shakespeare in the Context of Renaissance Women's Culture by Jane Donawerth
+- Edgar Allan Poe
+    - Poems
+        - An Acrostic (From an Album)
+        - Al Aaraaf
+        - Alone (From an Album Alone) (“From childhood’s hour I have not been…“)
+        - Annabel Lee
+        - Bridal Ballad (Song of the Newly-Wedded)
+        - The Bells
+        - Beloved Physician
+        - Catholic Hymn
+        - The Coliseum
+        - The Conqueror Worm
+        - The Divine Right of Kings
+        - The Doomed City (The City in the Sea)
+        - A Dream
+        - Dream-Land
+        - Dreams
+        - A Dream Within a Dream
+        - Eldorado
+        - Elizabeth
+        - Eulalie
+        - Evening Star
+        - Fairyland
+        - Fanny
+        - For Annie
+        - The Happiest Day
+        - The Haunted Palace
+        - Imitation
+        - Impromptu [To Kate Carol]
+        - Irene (The Sleeper)
+        - Israfel
+        - The Lake
+        - Latin Hymn
+        - Lenore
+        - [Lines on Joe Locke]
+        - Lines Written in an Album (To Elizabeth) (To F——s S. O——d)
+        - O, Tempora! O, Mores!
+        - A Paean
+        - Preface (Romance)
+        - The Raven
+        - Serenade
+        - Song of Triumph
+        - Sonnet (An Enigma)
+        - Sonnet — Silence
+        - Sonnet — To Science
+        - Sonnet — To Zante
+        - Spiritual Song
+        - Stanzas (“In youth I have known one…”)
+        - Stanzas [To F. S. O.]
+        - Tamerlane
+        - To — (“The bowers whereat …”)
+        - To —— (“Sleep on, sleep on, another hour …”)
+        - To — (Song)
+        - To Helen (“Helen, thy beauty is to me…”)
+        - To Helen (“I saw thee once — once only…”)
+        - To Her Whose Name is Written Below (A Valentine)
+        - To M— (Alone) (“O! I care not that my earthly lot…”)
+        - To M. L. S
+        - To Margaret
+        - To Mary (To One Departed )
+        - To Marie Louise
+        - To My Mother
+        - To One in Paradise (To One Beloved), (To Ianthe in Heaven)
+        - To ——[Violet Vane]
+        - Ulalume
+        - Spirits of the Dead
+        - The Valley of Unrest (The Valley Nis)
+    - Short Stories
+        - The Angel of the Odd
+        - The Narrative of Arthur Gordon Pym of Nantucket
+        - The Assignation (The Visionary)
+        - The Balloon Hoax
+        - Berenice
+        - The Black Cat
+        - Bon-Bon (The Bargain Lost)
+        - The Cask of Amontillado
+        - The Colloquy of Monos and Una
+        - The Conversation of Eiros and Charmion (The Destruction of the World)
+        - A Decided Loss (Loss of Breath)
+        - A Descent into the Maelström
+        - The Devil in the Belfry
+        - Diddling Considered as One of the Exact Sciences
+        - The Domain of Arnheim (The Landscape Garden )
+        - The Duc de L’Omelette
+        - Eleonora
+        - Epimanes (Four Beasts in One) (The Homocameleopard)
+        - The Facts in the Case of M. Valdemar
+        - The Fall of the House of Usher
+        - The Gold-Bug
+        - Hans Phaall — A Tale (The Unparalleled Adventure of One Hans Pfaall)
+        - Hop-Frog
+        - How to Write a Blackwood Article (The Psyche Zenobia)
+        - The Imp of the Perverse
+        - The Island of the Fay
+        - King Pest
+        - Landor’s Cottage
+        - Ligeia
+        - The Light-House
+        - Lionizing
+        - The Literary Life of Thingum Bob, Esq
+        - The Man of the Crowd
+        - The Man that was Used Up
+        - The Masque of the Red Death
+        - Mellonta Tauta
+        - Mesmeric Revelation
+        - Metzengerstein
+        - Morella
+        - Morning on the Wissahiccon (The Elk)
+        - MS. found in a Bottle (Manuscript found in a Bottle)
+        - The Murders in the Rue Morgue
+        - The Mystery of Marie Roget
+        - Mystification (Von Jung)
+        - Never Bet the Devil Your Head
+        - The Oblong Box
+        - The Oval Portrait (Life in Death)
+        - Peter Pendulum, the Business Man
+        - The Pit and the Pendulum
+        - Politian
+        - The Power of Words
+        - The Premature Burial
+        - The Purloined Letter
+        - The Scythe of Time
+        - Shadow — A Fable
+        - Silence — A Fable (Siope — A Fable)
+        - Some Words with a Mummy
+        - The Spectacles
+        - The Sphinx
+        - The System of Doctor Tarr and Professor Fether
+        - A Tale of Jerusalem
+        - A Tale of the Ragged Mountains
+        - The Tell-Tale Heart
+        - Thou Art the Man
+        - The Thousand-and-Second Tale of Scheherazade
+        - A Succession of Sundays (Three Sundays in a Week)
+        - Von Kempelen and His Discovery
+        - Why the Little Frenchman Wears His Hand in a Sling
+        - William Wilson
+        - X-ing a Paragrab
+    - Scholarly Works
+        - Edgar Allan Poe's Aesthetic Theory, the Insanity Debate, and the Ethnically Oriented Dynamics of “The Tell-Tale Heart” by Dan Shen
+        - Irresistible Impulses: Edgar Allan Poe and the Insanity Defense by John Cleman
+        - Edgar Allan Poe and the Surrealists' Image of Women by Robert J. Belton
+        - Edgar Allan Poe, Pathologically by Merton S. Yewdale
+        - A Psycho-Analytical Study of Edgar Allan Poe by Lorine Pruette
+- Audre Lorde
+    - Works
+        - A Burst Of Light
+        - The Black Unicorn
+        - Between Ourselves
+        - Cables To Rage
+        - The Cancer Journals
+        - The First Cities
+        - The Master’s Tools Will Never Dismantle the Master’s House
+        - From A Land Where Other People Live
+        - I Am Your Sister: Black Women Organizing Across Sexualities
+        - Lesbian Party: An Anthology
+        - Need: A Chorale For Black Women Voices
+        - The New York Head Shop And Museum
+        - Our Dead Behind Us: Poems
+        - Sister Outsider: Essays And Speeches
+        - The Marvelous Arithmetics Of Distance: Poems
+        - Undersong: Chosen Poems Old And New
+        - Uses Of The Erotic: The Erotic As Power
+        - Woman Poet—The East
+        - Zami: A New Spelling of My Name
+    - Scholarly Works
+        - Diving into Audre Lorde's "Blackstudies" by Angela Bowen
+        - Audre Lorde: Textual Authority and the Embodied Self by Margaret Kissam Morris
+        - Audre Lorde: Trauma Theory and Liberal Multiculturalism by Megan Obourn
+        - The Impact of Audre Lorde's Politics and Poetics on Afro-German Women Writers by Jennifer Michaels
+        - Making "Our Shattered Faces Whole": The Black Goddess and Audre Lorde's Revision of Patriarchal Myth by AnnLouise Keating
+        - Audre Lorde: Revising Stereotypes of Afro-American Womanhood by Ekaterini Georgoudaki
+- Special Interests
+    - The Most Revered of Foxes: Knowledge of Animals and Animal Power in an Ainu Kamui Yukar by Sarah M. Strong
+    - Anthropology in Japan: Historical Review and Modern Trends by Takao Sofue
+    - Fictional Dictionaries: Power and Philosophy of Language in Contemporary Chinese Fiction by Astrid Møller-Olsen
+    - Variations on Utopia in Contemporary Chinese Science Fiction by Mingwei Song
+    - Fascism and Science Fiction by Aaron Santesso
+    - Intangible Cultural Heritage and Self-Healing Mechanism in Chinese Culture by Juwen Zhang
+    - Trying on The Yellow Jacket: Performing Chinese Exclusion and Assimilation by Ju Yon Kim
+    - On Double Consciousness by Emmanuel C. Eze
+
+---
+Thanks for reading ♡
+_Neith  
+_
